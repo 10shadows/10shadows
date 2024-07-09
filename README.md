@@ -1,7 +1,9 @@
 ***
 
 <h5 align="center">
-  <img src="https://images2.imgbox.com/ec/35/gODyWNjQ_o.png"/>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Wittgenstein&pause=750&color=F7F7F7&random=false&width=435&lines=you+were+at+the+gate%2C+soaked+through;lets+not+say+a+word+if+it+isnt+true;%E2%99%AA+bloomsday+-+fontaines+dc" alt="Typing SVG" /></a>
+
+<img src="https://images2.imgbox.com/ec/35/gODyWNjQ_o.png"/>
 </h5>  
 <h4 align="center">
 
