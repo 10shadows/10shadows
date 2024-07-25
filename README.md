@@ -18,8 +18,6 @@ portal or vanta - she/her , 16yo
 </h4> 
 
 
-***
-
 
 
 
