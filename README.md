@@ -14,7 +14,7 @@ portal or vanta - she/her , 16yo
 <br>read my rentry + sign atabook !</br>
 ***
 <b>[PONY TOWN INFO](https://rentry.co/angelofdarkness)ㅤㅤㅤㅤ ㅤㅤ[RENTRY](https://rentry.co/captainanchor)ㅤㅤㅤㅤ ㅤㅤㅤ[ATABOOK](https://portal.atabook.org/)ㅤㅤㅤㅤ ㅤㅤㅤ[PRNS.CC](https://pronouns.cc/@anchor)ㅤㅤㅤㅤ ㅤㅤ[ARTFIGHT](https://artfight.net/~xpurgation)</b>
-
+[wojtek gola](https://images2.imgbox.com/7b/87/j5VEET6D_o.png)
 </h4> 
 
 
