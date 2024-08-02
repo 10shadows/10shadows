@@ -17,7 +17,9 @@ portal or vanta - she/her , 16yo
 
 </h4> 
 
-
+<h4 align="right">
+  <img src="https://komarev.com/ghpvc/?username=10shadows&color=yellow&style=plastic&label=SINNERS">
+</h4>
 
 
 
