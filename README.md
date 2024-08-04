@@ -1,11 +1,11 @@
 
 
 <h5 align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Roboto+Slab&duration=2000&pause=500&color=D5AA2A&center=true&width=435&lines=i+know+that+you+never+loved+me;i+know+that+you+never+cared+at+all;no+my+love+we+can't+be+friends;in+fact+I+liked+you+much+better;when+you+just+pretend.;i+know+that+you+never+loved+me;i+know+that+you+never+cared+at+all;maybe+just+one+more+dance;cause+thats+as+close+as+we're+gettin;to+a+true+romance.;TRUE+ROMANCE+-+SHE+WANTS+REVENGE" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=14&pause=2000&color=03C5C3&center=true&vCenter=true&multiline=true&width=399&lines=I+BEG+TO+SERVE%2C+YOUR+WISH+IS+MY+LAW;NOW+CLOSE+THOSE+EYES+AND+LET+ME+LOVE+YOU+TO+DEATH" alt="Typing SVG" /></a>
 
-***
 
-<img src="https://images2.imgbox.com/51/f1/vicnlU6B_o.png"/>
+
+<img src="https://images2.imgbox.com/72/7b/IPSftkq4_o.png"/>
 </h5>  
 <h4 align="center">
   
@@ -18,7 +18,7 @@ portal or vanta - she/her , 16yo
 </h4> 
 
 <h4 align="right">
-  <img src="https://komarev.com/ghpvc/?username=10shadows&color=yellow&style=plastic&label=SINNERS">
+  <img src="https://komarev.com/ghpvc/?username=10shadows&color=blue&style=plastic&label=SINNERS">
 </h4>
 
 
