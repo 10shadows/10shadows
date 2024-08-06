@@ -12,7 +12,7 @@
 ***
 portal or vanta - she/her , 16yo
 <br>read my rentry + sign atabook !</br>
-<br>follow my github ദ്ദി ( ᵔ ᗜ ᵔ )</br>
+<br>follow me ദ്ദി ( ᵔ ᗜ ᵔ )</br>
 
 <p><img src="https://files.catbox.moe/w9aze9.png"></p>
 
