@@ -5,7 +5,9 @@
 <br>sign my atabook + read my pt info rentry !</p>
 <p align="center">
 <br><b><a href="https://rentry.co/angelofdarkness">PONY TOWN INFO</a>ㅤㅤㅤㅤ ㅤㅤ<a href="https://portal.atabook.org/">ATABOOK</a>ㅤㅤㅤㅤ ㅤㅤㅤ<a href="https://pronouns.cc/@anchor">PRNS.CC</a></b></br>
+
 <p align="center"><img src="https://files.catbox.moe/mqquam.png"></p>
+ㅤㅤㅤ ㅤㅤㅤㅤ<img src="https://komarev.com/ghpvc/?username=10shadows&color=lightgrey&label=plastic&label=✩">
 
 
 
