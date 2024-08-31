@@ -4,4 +4,4 @@
 ─── ㅤㅤㅤㅤㅤㅤㅤㅤi love my friends :) ㅤㅤㅤㅤㅤㅤㅤㅤ───
 
 
-<p align="center"><a href="https://portal.atabook.org/">ATABOOK</a>ㅤ<a href="https://rentry.co/angelofdarkness">PT RENTRY</a>ㅤ<a href="https://pronouns.cc/@anchor">PRNSCC</a></p>
+<p align="center"><a href="https://portal.atabook.org/">ATABOOK</a>ㅤㅤㅤㅤ<a href="https://rentry.co/angelofdarkness">PT RENTRY</a>ㅤㅤㅤㅤ<a href="https://pronouns.cc/@anchor">PRNSCC</a></p>
