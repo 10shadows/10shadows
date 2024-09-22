@@ -1,5 +1,6 @@
 <p align="center">
   <img src="https://files.catbox.moe/kwol4i.png">
+ <img src="https://komarev.com/ghpvc/?username=10shadows&color=lightgrey&style=plastic&label=LOST+SOULS">
   <img src="https://images2.imgbox.com/74/ba/Uu3Y67et_o.png">
   <img src="https://images2.imgbox.com/47/91/CbxEOPnX_o.png"> </p>
    <p align="center">
