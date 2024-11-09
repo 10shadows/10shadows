@@ -10,5 +10,5 @@ i am always up for interactions, unless its stated otherwise in my name<br/>
 i dont care if you take inspiration from my skins<br/>
 c+h always! please sit with me!</br>
 
-[info rentry](https://rentry.co/angelofdarkness) [atabook](https://portal.atabook.org/) [prnscc](https://pronouns.cc/@anchor) [strawpg](https://madnesscombat.straw.page)
+[info rentry](https://rentry.co/angelofdarkness) ㅤ[atabook](https://portal.atabook.org/) ㅤ[prnscc](https://pronouns.cc/@anchor) ㅤ[strawpg](https://madnesscombat.straw.page)
 
