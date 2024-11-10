@@ -8,7 +8,7 @@ my name is portal or vanta, im also known as khoi or sailor<br/> i am 16 years o
 
 i am always up for interactions, unless its stated otherwise in my name<br/>
 i dont care if you take inspiration from my skins<br/>
-c+h always! please sit with me!</br>
+c+h is always fine! please sit with me! you can always find me at phighting or near enstars!</br>
 
 [info rentry](https://rentry.co/angelofdarkness) ㅤ[atabook](https://portal.atabook.org/) ㅤ[prnscc](https://pronouns.cc/@anchor) ㅤ[strawpg](https://madnesscombat.straw.page)
 
