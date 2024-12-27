@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=10shadows&label=WHEN+DUSK+FALLS&color=orange&style=plastic)
   
-<b>[rentry](https://rentry.co/crushingwaves) ㅤ[pt info rentry](https://rentry.co/angelofdarkness) ㅤ[atabook](https://portal.atabook.org/) ㅤ[strawpage](https://madnesscombat.straw.page/) ㅤ[follow me on letterboxd](https://letterboxd.com/xpurgation/)</b>
+<b>[MAIN RENTRY](https://rentry.co/crushingwaves) ㅤ[PONY TOWN INFO RENTRY](https://rentry.co/angelofdarkness) ㅤ[ATABOOK](https://portal.atabook.org/) ㅤ[STRAWPAGE](https://madnesscombat.straw.page/) ㅤ[LETTERBOXD](https://letterboxd.com/xpurgation/)</b>
 
 
 
