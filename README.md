@@ -1,11 +1,11 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=10shadows&label=the+great+lake&color=orange&style=plastic)
+![](https://komarev.com/ghpvc/?username=10shadows&label=lets+kill+the+whale&color=orange&style=plastic)
   
 <b>[MAIN RENTRY](https://rentry.co/crushingwaves) ㅤ[PONY TOWN INFO RENTRY](https://rentry.co/angelofdarkness) ㅤ[ATABOOK](https://portal.atabook.org/) ㅤ[STRAWPAGE](https://madnesscombat.straw.page/) ㅤ[LETTERBOXD](https://letterboxd.com/xpurgation/)</b>
 
 
-![](https://cdn.donmai.us/sample/91/e7/__ishmael_yi_sang_and_heathcliff_project_moon_and_1_more_drawn_by_8ight__sample-91e7892598ca8a67239a39e07440c179.jpg)
+![](https://cdn.donmai.us/sample/57/bc/__ishmael_project_moon_and_2_more_drawn_by_kyururirin__sample-57bce9bd0fd4d3a722e2b28e087df189.jpg)
 
 
 </div>
