@@ -6,4 +6,8 @@
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v5uloyvwhloiiyan3b35ekvv5e&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+![vyghsxub_o](https://github.com/user-attachments/assets/021b5fae-6391-4189-b7ae-5e1b56575e16)
+
+
 </div>
