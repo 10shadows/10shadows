@@ -5,5 +5,5 @@
 <b>[MAIN RENTRY](https://rentry.co/crushingwaves) ㅤ[PONY TOWN INFO RENTRY](https://rentry.co/angelofdarkness) ㅤ[ATABOOK](https://portal.atabook.org/) ㅤ[STRAWPAGE](https://madnesscombat.straw.page/) ㅤ[LETTERBOXD](https://letterboxd.com/xpurgation/)</b>
 
 
-![](https://cdn.donmai.us/sample/57/bc/__ishmael_project_moon_and_2_more_drawn_by_kyururirin__sample-57bce9bd0fd4d3a722e2b28e087df189.jpg)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v5uloyvwhloiiyan3b35ekvv5e&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 </div>
