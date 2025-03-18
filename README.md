@@ -7,8 +7,8 @@
 
 <b>[CURRENT MAIN RENTRY](https://rentry.co/shedletsky) ㅤ[PONY TOWN INFO RENTRY](https://rentry.co/angelofdarkness) ㅤ[ATABOOK](https://portal.atabook.org/) ㅤ[STRAWPAGE](https://madnesscombat.straw.page/)</b>
 
-im portal from 10shadows im 16 and i like to horse around
-<br>c+h encouraged , w2i if you want to be friends ദ്ദി ^v^ )</br>
+im portal from 10shadows im 16 and i like to horse around i luv adminshq esp shedletsky
+<br>c+h encouraged , w2i if you want to be friends ദ്ദി ^v^ ) hit me UP UP UP!</br>
 
 
 
