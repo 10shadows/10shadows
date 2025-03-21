@@ -8,7 +8,7 @@
 <b>[CURRENT MAIN RENTRY](https://rentry.co/shedletsky) ㅤ[PONY TOWN INFO RENTRY](https://rentry.co/angelofdarkness) ㅤ[ATABOOK](https://portal.atabook.org/) ㅤ[STRAWPAGE](https://madnesscombat.straw.page/)</b>
 
 im portal from 10shadows im 16 and i like to horse around 
-<br>roblox area celebrity i luv adminshq esp shedletsky i dont play about my love for shedletsky
+<br>roblox area celebrity i luv adminshq esp telamon / shed i dont play about my love for shedletsky
 <br>c+h encouraged , w2i if you want to be friends ദ്ദി ^v^ )</br>
 
 
