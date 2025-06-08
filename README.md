@@ -1,7 +1,7 @@
 
 <div align="center">
   
-![](https://popteamepic.carrd.co/assets/images/gallery19/e859e587.gif?v10408301085951)
+![](https://64.media.tumblr.com/38f60385954ef8f8974a9f6d37d78ca0/0c97c6aa4a85d3dd-2f/s250x400/57dcaa9d031006f2c9ef8746d46f2bce7a338332.gifv)
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v5uloyvwhloiiyan3b35ekvv5e&cover_image=true&theme=novatorem&show_offline=true&background_color=#fff&interchange=true&bar_color=fe7d37&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
@@ -15,7 +15,6 @@ portal / nicole or ammoㅤㅤshe / herㅤㅤ17yo
 
 ![](https://komarev.com/ghpvc/?username=10shadows&label=TOTALLY+PWNED&color=gray&style=for-the-badge)
 
-![](https://popteamepic.carrd.co/assets/images/gallery19/390ea098.gif?v10408301085951)
 
 
 
