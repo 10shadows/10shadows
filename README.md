@@ -17,4 +17,11 @@ portal / nicole or ammoㅤㅤshe / herㅤㅤ17yo
 
 ![](https://popteamepic.carrd.co/assets/images/gallery19/390ea098.gif?v10408301085951)
 
+
+
+
+https://github.com/user-attachments/assets/8c2269f0-aa78-4754-8016-91f653894b4e
+
+
+
 </div>
