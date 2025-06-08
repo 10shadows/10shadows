@@ -2,8 +2,6 @@
 <div align="center">
   
 ![](https://64.media.tumblr.com/38f60385954ef8f8974a9f6d37d78ca0/0c97c6aa4a85d3dd-2f/s250x400/57dcaa9d031006f2c9ef8746d46f2bce7a338332.gifv)
-  
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v5uloyvwhloiiyan3b35ekvv5e&cover_image=true&theme=novatorem&show_offline=true&background_color=#fff&interchange=true&bar_color=fe7d37&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![](https://popteamepic.carrd.co/assets/images/gallery77/61285760.gif?v10408301085951)
 
