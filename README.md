@@ -12,7 +12,7 @@ portal / nicole or ammoㅤㅤshe / herㅤㅤ17yo
 <br>just a girl having fun online i like roblox and scp and postal
 <br>c+h encouraged , w2i if you want to be friends ദ്ദി ^v^ )</br>
 
-![](https://komarev.com/ghpvc/?username=10shadows&label=TOTALLY+PWNED&color=red&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=10shadows&label=HOSTILES:&color=red&style=for-the-badge)
 
 
 
