@@ -8,7 +8,7 @@
 <b>[RENTRY](https://rentry.co/shedletsky) ㅤ[PONY TOWN INFO RENTRY](https://rentry.co/angelofdarkness) ㅤ[ATABOOK](https://portal.atabook.org/) ㅤ[STRAWPAGE](https://madnesscombat.straw.page/)</b>
 
 portal / nicole or ammoㅤㅤshe / herㅤㅤ17yo
-<br>fujoshi yumeshipper girl loser & roblox area celebrity
+<br>fujoshi yumeshipper girlfailure & roblox area celebrity
 <br>just a girl having fun online i like roblox and scp and postal
 <br>c+h encouraged , w2i if you want to be friends ദ്ദി ^v^ )</br>
 
