@@ -1,7 +1,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=10shadows&amp;label=ecdysis&amp;color=gray&amp;style=plastic)
 
 <p>
-	<a href="" id=""><img align="left" width="299" height="299" src="https://files.catbox.moe/g5hk1n.png" class="fr-fil fr-dii"></a>
+	<a href="" id=""><img align="left" width="299" height="299" src="https://files.catbox.moe/hl8ec8.png" class="fr-fil fr-dii"></a>
 </p>
 
 <p class="text-muted"><em>ㅤㅤㅤㅤㅤ@ㅤ10shadows</em></p>
