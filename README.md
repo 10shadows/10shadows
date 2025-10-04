@@ -10,7 +10,7 @@
 	<br>she/her only ㅤ<em>17</em> years old
 	<br>talk to me about scp , postal & balatro</p>
 
-<p><a href="https://portal.atabook.org/" id=""><strong>atabook</strong></a><strong><em>ㅤ</em><a href="https://postal2redux.straw.page/" id="">strawpage</a>ㅤ</strong><a href="https://rentry.co/angelofdarkness" id=""><strong>info rentry</strong></a></p>
+<p><a href="https://portal.atabook.org/" id=""><strong>atabook</strong></a><strong><em>ㅤ</em><a href="https://rentry.co/selfdestructiveness" id="">rentry</a>ㅤ</strong><a href="https://rentry.co/angelofdarkness" id=""><strong>info rentry</strong></a></p>
 
 <p>
 	<a href="https://toyhou.se/mefedron/characters/folder:6697427" id=""><img src="https://files.catbox.moe/26b2mg.gif" class="fr-fic fr-dii" width="203" height="175.975"></a>
