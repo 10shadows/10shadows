@@ -13,18 +13,16 @@
         whisper if you want to be friends, im tabbed out most of the time :)
       </p>
       <p>
-        my main interests are the <b>scp foundation</b>, <b>balatro</b>, <b>genshin impact</b>, <b>postal</b> & <b>marine engineering</b> ◝(ᵔᗜᵔ)◜ ..
+        my main interests are the scp foundation, balatro, genshin impact, postal & marine engineering ◝(ᵔᗜᵔ)◜ ..
       </p>
-      <p>
+      <p align="center">
         <img src="https://nustuff.carrd.co/assets/images/gallery15/6c07f5d1.jpg?v=0a15e1db" width="120">
         <img src="https://nustuff.carrd.co/assets/images/gallery14/fddd6af2.jpg?v=0a15e1db" width="120">
+        <img src="https://nustuff.carrd.co/assets/images/gallery04/1ea79233.png?v=0a15e1db" width="120">
+        <img src="https://nustuff.carrd.co/assets/images/gallery10/04d9e96d.png?v=0a15e1db" width="120">
       </p>
-      <ul>
-        <li><a href="https://portal.atabook.org/">atabook (sign!)</a></li>
-        <li><a href="https://guns.lol/repentance">gunslol</a></li>
-        <li><a href="https://rentry.co/angelofdarkness">information rentry</a></li>
-        <li><a href="https://madnesscombat.straw.page/">strawpage</a></li>
-      </ul>
+ <p align="center"> <a href="https://portal.atabook.org/">atabook (sign!)</a>ㅤㅤ<a href="https://guns.lol/repentance">gunslol</a>ㅤㅤ<a href="https://rentry.co/angelofdarkness">information rentry</a>ㅤㅤ<a href="https://madnesscombat.straw.page/">strawpage</a>
+</p>
       <p align="center">
         <img src="https://gifcity.carrd.co/assets/images/gallery18/e87e8a26.gif?v=e3c0bc0f" width="150">
         <img src="https://gifcity.carrd.co/assets/images/gallery18/33b6e7f8.gif?v=e3c0bc0f" width="154">
