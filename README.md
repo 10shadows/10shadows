@@ -10,7 +10,7 @@
         my name is <b>nicole</b> or portal, im 17 years old & from poland  
         feel free to talk to me, im pretty much a social butterfly online &lt;3  
         i dont have a dni, just dont be a weirdo & well be good.  
-        whisper if you want to be friends, im tabbed out most of the time :)
+        whisper if you want to be friends, im tabbed out most of the time :) c+h ok always
       </p>
       <p>
         my main interests are the scp foundation, balatro, genshin impact, postal, coding, metal and rock music & marine engineering ◝(ᵔᗜᵔ)◜ ..
