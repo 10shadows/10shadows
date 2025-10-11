@@ -13,7 +13,7 @@
         whisper if you want to be friends, im tabbed out most of the time :) c+h ok always
       </p>
       <p>
-        my main interests are the scp foundation, balatro, genshin impact, postal, coding, metal and rock music & marine engineering ◝(ᵔᗜᵔ)◜ ..
+        my main interests are the scp foundation, balatro, genshin impact, postal, silksong, coding, metal and rock music & marine engineering ◝(ᵔᗜᵔ)◜ ..
       </p>
       <p align="center">
         <img src="https://nustuff.carrd.co/assets/images/gallery15/6c07f5d1.jpg?v=0a15e1db" width="120">
