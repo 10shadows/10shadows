@@ -1,17 +1,39 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=10shadows&amp;label=ecdysis&amp;color=gray&amp;style=plastic)
+<table>
+  <tr>
+    <td width="40%" align="center">
+      <img src="https://files.catbox.moe/wrwn7l.png" width="300" alt="Profile image">
+    </td>
+    <td width="60%" valign="top">
+      <p><i>@ <b>10shadows</b></i></p>
+      <p>
+        my name is <b>nicole</b> or portal, im 17 years old & from poland  
+        feel free to talk to me, im pretty much a social butterfly online &lt;3  
+        i dont have a dni, just dont be a weirdo & well be good.  
+        whisper if you want to be friends, im tabbed out most of the time :)
+      </p>
+      <p>
+        my main interests are the <b>scp foundation</b>, <b>balatro</b>, <b>genshin impact</b>, <b>postal</b> & <b>marine engineering</b> ◝(ᵔᗜᵔ)◜ ..
+      </p>
+      <p>
+        <img src="https://nustuff.carrd.co/assets/images/gallery15/6c07f5d1.jpg?v=0a15e1db" width="120">
+        <img src="https://nustuff.carrd.co/assets/images/gallery14/fddd6af2.jpg?v=0a15e1db" width="120">
+      </p>
+      <ul>
+        <li><a href="https://portal.atabook.org/">atabook (sign!)</a></li>
+        <li><a href="https://guns.lol/repentance">gunslol</a></li>
+        <li><a href="https://rentry.co/angelofdarkness">information rentry</a></li>
+        <li><a href="https://madnesscombat.straw.page/">strawpage</a></li>
+      </ul>
+      <p align="center">
+        <img src="https://gifcity.carrd.co/assets/images/gallery18/e87e8a26.gif?v=e3c0bc0f" width="150">
+        <img src="https://gifcity.carrd.co/assets/images/gallery18/33b6e7f8.gif?v=e3c0bc0f" width="154">
+        <img src="https://supplies.ju.mp/assets/images/gallery07/f60bbb94.gif?v=1c1ba870" width="150">
+      </p>
+    </td>
+  </tr>
+</table>
 
-<p>
-	<a href="" id=""><img align="left" width="140" height="299" src="https://files.catbox.moe/hl8ec8.png" class="fr-fil fr-dii"></a>
+<p align="center">
+  <img src="https://camo.githubusercontent.com/1f941bcc72143af0aa58af1b9839b12895f25f8904c62c04a102ff03d2d3976f/68747470733a2f2f66696c65732e636174626f782e6d6f652f3666726a676c2e706e67" width="88" alt="Badge">
 </p>
-
-<p class="text-muted"><em>ㅤㅤㅤㅤㅤ@ㅤ10shadows</em></p>
-
-<p>my name is nicole or portal
-	<br>she/her only ㅤ<em>17</em> years old
-	<br>talk to me about scp , postal & balatro</p>
-
-<p><a href="https://portal.atabook.org/" id=""><strong>atabook</strong></a><strong><em>ㅤ</em><a href="https://rentry.co/selfdestructiveness" id="">rentry</a>ㅤ</strong><a href="https://rentry.co/angelofdarkness" id=""><strong>info rentry</strong></a></p>
-
-<p>
-	<a href="https://toyhou.se/mefedron/characters/folder:6697427" id=""><img src="https://files.catbox.moe/26b2mg.gif" class="fr-fic fr-dii" width="203" height="175.975"></a>
-<a href="https://github.com/pt-awards" id=""><img src="https://files.catbox.moe/6frjgl.png" class="fr-fic fr-dii" width="172" height="172"></p></a>
