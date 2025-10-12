@@ -9,7 +9,7 @@
       <p>
         my name is <b>nicole</b> or portal, im 17 years old , <b>i use she/her pronouns ONLY</b> & im from poland  
         feel free to talk to me, im pretty much a social butterfly online &lt;3  
-        i dont have a dni, just dont be a weirdo & well be good.  
+        i dont have a dni, i dont like you = i hide lollll
         whisper if you want to be friends, im tabbed out most of the time :) c+h ok always
       </p>
       <p>
