@@ -17,7 +17,7 @@
       </p>
       <p align="center">
         <img src="https://nustuff.carrd.co/assets/images/gallery15/6c07f5d1.jpg?v=0a15e1db" width="120">
-        <img src="https://nustuff.carrd.co/assets/images/gallery14/fddd6af2.jpg?v=0a15e1db" width="120">
+        <img src="https://nustuff.carrd.co/assets/images/gallery07/75156ca0.png?v=0a15e1db" width="120">
         <img src="https://nustuff.carrd.co/assets/images/gallery10/04d9e96d.png?v=0a15e1db" width="120">
       </p>
  <p align="center"> <a href="https://portal.atabook.org/">atabook (sign!)</a>ㅤㅤ<a href="https://guns.lol/repentance">gunslol</a>ㅤㅤ<a href="https://rentry.co/angelofdarkness">information rentry</a>ㅤㅤ<a href="https://madnesscombat.straw.page/">strawpage</a>
