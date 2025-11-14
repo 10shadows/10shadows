@@ -7,7 +7,7 @@
     <td width="60%" valign="top">
       <p><i>@ <b>10shadows</b></i></p>
       <p>
-        my name is <b>nicole</b> or portal, 17 years old, npd angel<b>i use she/her pronouns ONLY</b> & im from poland  
+        my name is <b>nicole</b> or portal, 17 years old, npd angel <b>i use she/her pronouns ONLY</b> & im from poland  
         i dont have a dni, i dont like you = i hide get outta my sight
         whisper if you want to be friends, im tabbed out most of the time :) c+h ok always
       </p>
