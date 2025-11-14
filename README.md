@@ -19,7 +19,7 @@
         <img src="https://nustuff.carrd.co/assets/images/gallery07/75156ca0.png?v=0a15e1db" width="120">
         <img src="https://nustuff.carrd.co/assets/images/gallery10/04d9e96d.png?v=0a15e1db" width="120">
       </p>
- <p align="center"> <a href="https://portal.atabook.org/">atabook (sign!)</a>ㅤㅤ<a href="https://guns.lol/repentance">gunslol</a>ㅤㅤ<a href="https://rentry.co/angelofdarkness">information rentry</a>ㅤㅤ<a href="https://madnesscombat.straw.page/">strawpage</a>
+ <p align="center"> <a href="https://portal.atabook.org/">atabook (sign!)</a>ㅤㅤ<a href="https://guns.lol/repentance">gunslol</a>ㅤㅤ<a href="https://rentry.co/angelofdarkness">information rentry</a>ㅤㅤ<a href="https://fightcIub.straw.page/">strawpage</a>
 </p>
       <p align="center">
         <img src="https://gifcity.carrd.co/assets/images/gallery18/e87e8a26.gif?v=e3c0bc0f" width="150">
